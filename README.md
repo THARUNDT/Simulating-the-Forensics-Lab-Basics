@@ -86,8 +86,7 @@
 ### **Sleuth Kit**
 
 ![Screenshot 2025-03-28 084910](https://github.com/user-attachments/assets/6f199759-a816-4205-9a61-9e52381f8288)
-
-![image](https://github.com/user-attachments/assets/67409b21-5eec-42b0-bdb9-ee0c8df9a705)
+![Screenshot 2025-03-28 095039](https://github.com/user-attachments/assets/c4113130-44aa-4804-9e05-49da3f5b7957)
 
 
 ---
